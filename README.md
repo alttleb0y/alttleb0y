@@ -2,4 +2,4 @@
 - 💻 Sleeper-Coder build :b
 - 📫 Reach me: pht14112005@gmail.com 
 - ⚙️ Computer Engineer n more... 
-- ![Pray](https://drive.google.com/file/d/1k9BeNkxnA4o8ihRSCmBXCMQcKq-frBvF/view?usp=drive_link)
+- ![Pray](https://th.bing.com/th/id/OIP.6ibwdlIAkadrZ_qWrbVYXAHaE2?rs=1&pid=ImgDetMain)
