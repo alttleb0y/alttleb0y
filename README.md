@@ -1,5 +1,4 @@
 - 👋 @alttleb0y | 2005 | 🇻🇳
 - 💻 Sleeper-Coder build :b
 - 📫 Reach me: pht14112005@gmail.com 
-- ⚙️ Computer Engineer n more... 
-- ![Pray](https://th.bing.com/th/id/OIP.6ibwdlIAkadrZ_qWrbVYXAHaE2?rs=1&pid=ImgDetMain)
+- ⚙️ Computer Engineer n more...
