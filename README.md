@@ -2,4 +2,4 @@
 - 💻 Sleeper-Coder build :b
 - 📫 Reach me: pht14112005@gmail.com 
 - ⚙️ Computer Engineer n more... 
-![Pray]("https://cdn.discordapp.com/emojis/883266714102530048.webp?size=128&quality=lossless")
+![Pray]("https://drive.google.com/file/d/1k9BeNkxnA4o8ihRSCmBXCMQcKq-frBvF/view?usp=drive_link")
