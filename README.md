@@ -2,4 +2,4 @@
 - 💻 Sleeper-Coder build :b
 - 📫 Reach me: pht14112005@gmail.com 
 - ⚙️ Computer Engineer n more... 
-- ![Pray]("https://cdn3.emoji.gg/emojis/4256-pepe-police.png")
+- ![Pray](https://cdn3.emoji.gg/emojis/4256-pepe-police.png)
