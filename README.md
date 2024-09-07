@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alttleb0y | 🇻🇳
+- 👋 @alttleb0y | 2005 | 🇻🇳
 - 💻 Sleeper-Coder build :b
 - 📫 Reach me: pht14112005@gmail.com 
 - ⚙️ Computer Engineer n more... 
